@@ -1,3 +1,4 @@
+<img width="3840" height="2160" alt="20260607_OHR DunseverickCastle2026_ROW5774172338_UHD_bing" src="https://github.com/user-attachments/assets/660d100a-6bfd-4b98-99eb-65b7a0361e1e" />
 # 2027年6月中旬 加拿大洛磯山脈自駕旅遊規劃主檔（更新定案版）
 
 > **【給 AI 助手的系統提示】**
